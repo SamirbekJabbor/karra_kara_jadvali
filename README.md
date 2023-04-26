@@ -1,0 +1,1 @@
+# karra_kara_jadvali
